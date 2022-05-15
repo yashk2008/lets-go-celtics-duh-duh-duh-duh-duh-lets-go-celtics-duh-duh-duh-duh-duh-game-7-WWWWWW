@@ -1,1 +1,2 @@
-# lets-go-celtics-duh-duh-duh-duh-duh-lets-go-celtics-duh-duh-duh-duh-duh-game-7-WWWWWW
+# C38RV_SpeedRacer_StudentActivity
+Student Activity
